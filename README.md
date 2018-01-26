@@ -17,3 +17,6 @@ C'est la que les **problèmes** commencent.
 Les yeux de la femme de *Pierro* virèrent au rouge, et l'instant d'après, un laser mortel sorti de ses yeux et dichira le canapé en deux. Heureusement, ce bon vieux *Pierro*, félin parmis les hommes, eu le réflexe de sauter du canapé à temps.
 
 Pierro bondit du canapé vers la fenêtre de l'appartement qui était restée ouverte. Et avec son habilité de chat, il atterit sur ses pieds, aux côtés de son ami Polo
+## Puis **Pierro** sortit de ses pensées, sa femme était debout aux cotés de **Polo**, elle était clairement en colère.
+### La main de sa femme fendit l'air et dans un mouvement aussi rapide que violent marqua la joue de **Polo**.
+#### **Polo** eut la joue aussi rouge que *le laser* qu'avait imaginé **Pierro**. Il se mit alors à rire, jusqu'à ce qu'il remarque que sa femme s'était tourné vers lui...
