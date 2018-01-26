@@ -15,3 +15,5 @@ C'est la que les **problèmes** commencent.
 > Allo ? Minou t'es toujours parmi nous ?
 
 Les yeux de la femme de *Pierro* virèrent au rouge, et l'instant d'après, un laser mortel sorti de ses yeux et dichira le canapé en deux. Heureusement, ce bon vieux *Pierro*, félin parmis les hommes, eu le réflexe de sauter du canapé à temps.
+
+Pierro bondit du canapé vers la fenêtre de l'appartement qui était restée ouverte. Et avec son habilité de chat, il atterit sur ses pieds, aux côtés de son ami Polo
