@@ -20,3 +20,9 @@ Pierro bondit du canapé vers la fenêtre de l'appartement qui était restée ou
 ## Puis **Pierro** sortit de ses pensées, sa femme était debout aux cotés de **Polo**, elle était clairement en colère.
 ### La main de sa femme fendit l'air et dans un mouvement aussi rapide que violent marqua la joue de **Polo**.
 #### **Polo** eut la joue aussi rouge que *le laser* qu'avait imaginé **Pierro**. Il se mit alors à rire, jusqu'à ce qu'il remarque que sa femme s'était tourné vers lui...
+
+> Mais attend chérie je peux quand même allé boire un verre avec mon seul ami non ?
+
+> Bien sûr sale ivrogne, mais si tu passe cette porte tu ne la franchira plus jamais !
+
+**Pierro** se rassoit et regarde le sol.
